@@ -5,8 +5,8 @@
 ### hii nice to meet you this is tom!!
 ##### Or Chenlian (second tone up and fourth tone down)
 
-- i am a PhD student @ the Tri-institutional Program in Computational Biology and Medicine, a joint program between Memorial Sloan Kettering Cancer Center (MSK), Cornell and its medical college, and the Rockefeller University. my research lies in the power set of  __{cancer biology ♋, interpretable ML 🖥️, microbiome 🦠} __@__ [Dr. Niki Schultz's lab @ MSK](https://www.mskcc.org/research-areas/labs/nikolaus-schultz). Also lucky to be working with [Dr. Chris Mason](https://masonlab.net/), and [Dr. Wodan Ling](https://vivo.weill.cornell.edu/display/cwid-wol4002).
-- my hobbies lie in the power set of __{ [choral](https://music.hunter.cuny.edu/ensemble-and-performance-classes/) and [a cappella](https://www.instagram.com/stanza.gram/?hl=en) music,  [vocal recording](https://soundcloud.com/tom-chenlian-fu), piano}__.
+- i am a PhD student @ the Tri-institutional Program in Computational Biology and Medicine, a joint program between Memorial Sloan Kettering Cancer Center (MSK), Cornell and its medical college, and the Rockefeller University. my research lies in the power set of  __{cancer biology ♋, interpretable ML 🖥️, microbiome 🦠}__ @ [Dr. Niki Schultz's lab @ MSK](https://www.mskcc.org/research-areas/labs/nikolaus-schultz). Also lucky to be working with [Dr. Chris Mason](https://masonlab.net/), and [Dr. Wodan Ling](https://vivo.weill.cornell.edu/display/cwid-wol4002).
+- my hobbies lie in the power set of __{[choral](https://music.hunter.cuny.edu/ensemble-and-performance-classes/) and [a cappella](https://www.instagram.com/stanza.gram/?hl=en) music,  [vocal recording](https://soundcloud.com/tom-chenlian-fu), piano}__.
 - [harvey mudd 🧡](https://www.hmc.edu/) alum!
 - if you don't see me, i am probably lying down somewhere in a park in NYC 🗽 :)
 
