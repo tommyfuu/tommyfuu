@@ -6,7 +6,7 @@
 ##### Or Chenlian (second tone up and fourth tone down)
 
 - interpretable ML 🖥️ U cancer biology ♋ U microbiome 🦠 @ [Dr. Niki Schultz's lab @ MSK](https://www.mskcc.org/research-areas/labs/nikolaus-schultz). Also lucky to be working with [Dr. Chris Mason](https://masonlab.net/), and [Dr. Wodan Ling](https://vivo.weill.cornell.edu/display/cwid-wol4002).
-- [choral](https://music.hunter.cuny.edu/ensemble-and-performance-classes/) and [a cappella](https://www.instagram.com/stanza.gram/?hl=en) music U [singing](https://soundcloud.com/tom-chenlian-fu) U piano.
+- [choral](https://music.hunter.cuny.edu/ensemble-and-performance-classes/) and [a cappella](https://www.instagram.com/stanza.gram/?hl=en) music U [vocal recording](https://soundcloud.com/tom-chenlian-fu) U piano.
 - [Harvey Mudd 🧡](https://www.hmc.edu/) alum!
 - if you don't see me, i am probably lying down somewhere in a park in NYC 🗽 :)
 
