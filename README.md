@@ -13,7 +13,7 @@
 
 ##### gratitude
 - am extremely lucky to be/have been mentored by [Dr. Cristian Coarfa @ BCM](https://www.bcm.edu/people-search/cristian-coarfa-19635), [Dr. Quaid Morris @ MSK](https://www.morrislab.ai/), [Dr. Matina Donaldson-Matasci @ HMC](https://www.google.com/search?q=bee+lab+hmc&oq=bee+lab+hmc&aqs=chrome..69i57j33i160.1710j0j4&sourceid=chrome&ie=UTF-8) during undergrad. 
-- musically, i am really grateful for my undergrad choir professor [Dr. Charles Kamm @ Scripps](https://www.scrippscollege.edu/offices/profile/charles-kamm) and piano professor [Julie Simon @ Scripps](https://www.scrippscollege.edu/offices/profile/julie-simon), the director at the Hunter College Choir [Dr. Michael Sheetz](https://www.michaelsheetzmusic.com/), and my friend [Zachary Fletcher](https://www.autistwithavoice.com/) who connected me with my current choir [St. Paul Chapel's Choir at Trinity Church Wall Street](https://trinitywallstreet.org/music/ensembles/st-pauls-chapel-choir).
+- musically, i am really grateful for my undergrad choir professor [Dr. Charles Kamm @ Scripps](https://www.scrippscollege.edu/offices/profile/charles-kamm) and piano professor [Julie Simon @ Scripps](https://www.scrippscollege.edu/offices/profile/julie-simon), the director at the Hunter College Choir [Dr. Michael Sheetz](https://www.michaelsheetzmusic.com/), and the Downtown Voices Choir, as well as my friend [Zachary Fletcher](https://www.autistwithavoice.com/) who connected me with [St. Paul Chapel's Choir at Trinity Church Wall Street](https://trinitywallstreet.org/music/ensembles/st-pauls-chapel-choir).
 
 #### other sites
 - [Google Scholar.](https://scholar.google.com/citations?user=4gZPhoQAAAAJ&hl=en&oi=ao)
